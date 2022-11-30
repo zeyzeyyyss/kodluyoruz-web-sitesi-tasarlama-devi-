@@ -1,1 +1,1 @@
-# kodluyoruz-web-sitesi-tasarlama-öödevi-
+# kodluyoruz-web-sitesi-tasarlama-ödevi-
